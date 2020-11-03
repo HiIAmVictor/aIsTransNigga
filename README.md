@@ -1,2 +1,2 @@
 # aIsTransNigga
-From Pupa, Lupa and Za*lupa
+From Pupa, Lupa and Za{P,L}upa
